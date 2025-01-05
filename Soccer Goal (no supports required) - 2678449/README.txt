@@ -1,1 +1,1 @@
-Soccer Goal (no supports required) by poikilos on Thingiverse: https://www.thingiverse.com/thing:2678449
+Soccer Goal model
